@@ -11,7 +11,7 @@
    - I'm open to partnering with like-minded individuals, organizations, or companies to further our collective understanding and responsible use of AI.
 
 5. **📫 How to reach me ...**
-   - You can reach me through my social media profiles linked under @aiworldatlas or via email at [albert@aiworldatlas.com](mailto:albert@aiworldatlas.com). I'm always open to new connections and ideas.
+   - You can reach me through my social media profiles linked under [@aiworldatlas](https://twitter.com/aiworldatlas) or via email at [albert@aiworldatlas.com](mailto:albert@aiworldatlas.com). I'm always open to new connections and ideas.
 
 6. **😄 Pronouns: He/Him**
    - Just to keep our conversations respectful and comfortable, you can refer to me using he/him pronouns.
